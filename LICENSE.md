@@ -1,4 +1,4 @@
-# 
+# top Adobe Photoshop para PC addons é o melhor Adobe Photoshop para PC addons com exportar para PDF e efeitos vetoriais. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
